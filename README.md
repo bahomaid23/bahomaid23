@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Web Projects.
 - 📫 How to reach me @bahomiad23 on X.
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Start learning today, and you'll not cry in  the bathromm everyday.
+- ⚡ Fun fact: Start learning today, and you'll not cry in  the bathroom everyday.
 
 <!---
 bahomaid23/bahomaid23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
